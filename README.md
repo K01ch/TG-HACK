@@ -1,4 +1,4 @@
-# TG-HACK
+# TG-HACK-BY-KOICH
 
 уганяет тг акки
 
